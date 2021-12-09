@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate in the future as I learn and grow in knowledge of w/b. If anyone has any advise 
       on how they would approach learning web development I'd gladly listen and take it into consideration.
 - 📫 How to reach me 
-      patfran0783@gmail.com 
+      patfran0783@gmail.com or 
       https://www.linkedin.com/in/patrick-francis/ 
 
 <!---
